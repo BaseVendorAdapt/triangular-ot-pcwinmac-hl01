@@ -1,4 +1,4 @@
-# 
+# Nuevo triangular arbitrage bot extensiones para Mac OS | Inteligente triangular arbitrage bot extensiones para PC Windows. Con notificaciones de alerta y detección de ruptura — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
